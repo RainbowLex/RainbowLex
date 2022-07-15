@@ -4,11 +4,11 @@
 
 - 🔭 I’m currently working on **a ASL learning website**
 
-- 👯 I’m looking to collaborate on **any project, I would love the experience and am always open to anything**
+- 👯 I’m looking to collaborate on **any project, I would love the experience and am always open to anything!**
 
 - 📫 How to reach me **alexiavel01@gmail.com**
 
-- ⚡ Fun fact **I can tie balloons extremely fast**
+- ⚡ Fun fact **I can tie balloons extremely fast!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
